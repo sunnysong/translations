@@ -76,7 +76,7 @@ Other materials are designed envisioning a second life as a building material. A
 
 The United Bottle project is based on a similar concept. The plastic bottles lock into each other without mortar and form an effective brick bond. It’s an idea with the potential for commercialisation, but Heineken’s world bottle failed 50 years ago because of fears it would not go down well with consumers and today the industry is similarly hesitant. 
 
-United Bottle项目正是基于类似的概念。不需要水泥灰浆，这些塑料瓶就可以相互紧扣，形成了一个有效的砌砖。这个创意有被商业化的可能，但是50年前海尼根的世界瓶计划失败的原因，是担心消费者不太易接受这种材料，目前建筑行业也仍然由此疑虑。
+United Bottle项目正是基于类似的概念。不需要水泥灰浆，这些塑料瓶就可以相互咬合，形成了一个有效的砌砖。这个创意有被商业化的可能，但是50年前海尼根的世界瓶计划失败的原因，是担心消费者不太易接受这种材料，目前建筑行业也仍然由此疑虑。
 
 ![](http://i.guim.co.uk/img/static/sys-images/Guardian/Pix/pictures/2015/6/18/1434643970667/cc68ef4b-d828-4e32-96e5-37250695e310-2060x1236.jpeg?w=620&q=85&auto=format&sharp=10&s=12bd43ff2603051769ac1aec2b43a8ee)
 
